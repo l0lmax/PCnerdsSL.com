@@ -1,1 +1,1 @@
-# pipicoin.com
+# PCnerdsSLO.si
